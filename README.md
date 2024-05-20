@@ -1,6 +1,6 @@
 <div align="center">
 
-$\textit{'𝖕𝖊𝖜 𝖕𝖊𝖜'}$  
+$\textit{'𝖌𝖚𝖓𝖘 𝖓 𝖗𝖔𝖘𝖊𝖘'}$  
 
 </div>
 
@@ -12,7 +12,7 @@ $\textit{'𝖕𝖊𝖜 𝖕𝖊𝖜'}$
 
 <div align="center">
 
-$\textit{𝖌𝖚𝖓𝖘 𝖓 𝖗𝖔𝖘𝖊𝖘}$ 
+$\textit{playing w his bootyhill ♡}$ 
 $\textit{mostly in boothill skin, c+h, w2i}$ 
 
 </div>
