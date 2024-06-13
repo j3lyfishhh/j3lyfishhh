@@ -13,6 +13,6 @@ $\textit{'𝖌𝖚𝖓𝖘 𝖓 𝖗𝖔𝖘𝖊𝖘'}$
 <div align="center">
 
 $\textit{playing w his bootyhill ♡}$ 
-$\textit{mostly in boothill skin, c+h, w2i}$ 
+$\textit{usually in boothill skin, c+h, w2i}$ 
 
 </div>
